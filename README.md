@@ -80,6 +80,6 @@ Upon submission, I’ll analyze your responses and deliver a concise, actionable
 | Tailored Framework             | A custom decision-making framework designed to address your specific challenges.|
 | Actionable Steps               | Clear, practical steps to align your decisions with your stated goals.          |
 
-*Have questions? Reply directly to this form or email [your-email-here]. Let’s optimize your decision-making today.*
+*Have questions? Reply directly to this form or email [mzadecki@icloud.com]. Let’s optimize your decision-making today.*
 
 ---

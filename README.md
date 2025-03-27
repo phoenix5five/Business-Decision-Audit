@@ -8,7 +8,7 @@
 
 1. **Copy this form** to your preferred tool (e.g., Google Forms, Typeform).  
 2. **Fill it out** individually or share it with your team for collaborative input.  
-3. **Contact me** at [your-email-here] for a tailored analysis based on your responses.  
+3. **Contact me** at [mzadecki@icloud.com] for a tailored analysis based on your responses.  
 
 ---
 
